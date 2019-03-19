@@ -1,14 +1,14 @@
 ##Nigeria
-## population
+## population - 180,000,000
 
 
-## capital
+## capital - Lagos
 
  
-## official language
+## official language - English
 
 
-## interesting trivia
+## interesting trivia - Happiest People in the World
 
 
 
